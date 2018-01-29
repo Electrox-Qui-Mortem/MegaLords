@@ -1,2 +1,2 @@
-# True-Apocalypse
-A half apocalypse is nothing compared to the true meaning CHAOS
+# megalords
+Specialized website by gods for mortals
